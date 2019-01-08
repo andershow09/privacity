@@ -22,7 +22,7 @@ Se pedirmos suas informações pessoais por uma razão secundária, como marketi
 
 Como posso retirar o meu consentimento?
 
-Caso depois de fornecer seus dados você mude de ideia, você pode retirar o seu consentimento quando quiser e assim evitar que entremos em contato para obter ou divulgar informações. Entre em contato conosco através do ander.ratm@gmail.com ou por correio: Agro Help labs Rua Ernesto rayser ramos ,379, Casa, Toledo, PR, 85912146, Brazil
+Caso depois de fornecer seus dados você mude de ideia, você pode retirar o seu consentimento quando quiser e assim evitar que entremos em contato para obter ou divulgar informações. Entre em contato conosco através do agrohelplabs@gmail.com ou por correio: Agro Help labs, Aceleradora Red Foot- PUC-PR, Avenida União, 500 - Jardim Coopagro, Toledo - PR, 85902-532, Brasil
 
 
 SEÇÃO 3 - DIVULGAÇÃO
@@ -91,10 +91,10 @@ Caso ocorra a fusão da nossa loja com outra empresa, suas informações podem s
 
 PERGUNTAS E INFORMAÇÕES DE CONTATO
 
-Se você gostaria de acessar, corrigir, alterar ou excluir quaisquer informações pessoais que temos sobre você, registre uma queixa, ou simplesmente peça mais informações de contato a(o) nosso(a) Diretor(a) de privacidade através do ander.ratm@gmail.com ou pelo correio: Agro Help labs
+Se você gostaria de acessar, corrigir, alterar ou excluir quaisquer informações pessoais que temos sobre você, registre uma queixa, ou simplesmente peça mais informações de contato a(o) nosso(a) Diretor(a) de privacidade através do agrohelplabs@gmail.com ou pelo correio: Agro Help labs
 
 [Re: Diretor(a) de privacidade]
-
-[Rua Ernesto rayser ramos ,379, Casa, Toledo, PR, 85912146, Brazil]
+ 
+[Agro Help labs, Aceleradora Red Foot- PUC-PR, Avenida União, 500 - Jardim Coopagro, Toledo - PR, 85902-532, Brasil]
 
 ----
